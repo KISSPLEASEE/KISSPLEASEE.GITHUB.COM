@@ -1,2 +1,2 @@
-# KISSPLEASEE.GITHUB.COM
+# kisspleasee.github.io
 Heiven Jesryc N. Araojo
